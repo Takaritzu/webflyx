@@ -1,5 +1,3 @@
-# Dune quotes
-
 - "May thy knife chip and shatter"
 - "A Great Moon Doesn't Seek To Lead. He's Called To It."
 - "An Animal Caught In A Trap Will Gnaw Off It's Own Leg To Escape. What Will You Do?"
